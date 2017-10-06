@@ -1,2 +1,2 @@
-# limaoxu.github.com
+# Li, Maoxu
 http://limaoxu.com
